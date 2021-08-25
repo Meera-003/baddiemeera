@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @baddiemeera
+- 👋 Hi, I’m @Ameera
 - 👀 I’m interested in bla bla
 - 🌱 I’m currently learning tech
 - 💞️ I’m looking to collaborate on idk
